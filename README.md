@@ -1,1 +1,1 @@
-congingan ini hanya unntuk tugas semata 
+codingan ini hanya unntuk tugas semata 
